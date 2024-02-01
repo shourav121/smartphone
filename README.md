@@ -1,3 +1,3 @@
 # smartphone
 <br>
-i m kumargit a
+i m kumargit av
